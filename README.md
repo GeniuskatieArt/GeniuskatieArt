@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GeniuskatieArt
+- 👋 Hi, I’m @Geniuskatie_Art
 - 👀 I’m interested in creating NFT platform to present my secret work and revolutionary philosophy.
 - 🌱 I’m currently learning way to do a strategic plan so it comes to a life very soon.
 - 💞️ I’m looking to collaborate on it with kind lovely and fun people.
